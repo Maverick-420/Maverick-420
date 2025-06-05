@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aniketcodes2003@gmail.com**
 
-- 📄 Know about my experiences [https://aniket-bhagat-resume.tiiny.site/](https://aniket-bhagat-resume.tiiny.site/)
+- 📄 Know about my experiences [Resume]([https://aniket-bhagat-resume.tiiny.site/](https://drive.google.com/file/d/1ZJAUSUVh9cH5ELhZiswsabyUanhCgkZt/view))
 
 - ⚡ Fun fact **I Do What Excites**
 
