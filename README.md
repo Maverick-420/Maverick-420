@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aniketcodes2003@gmail.com**
 
-- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/1ZJAUSUVh9cH5ELhZiswsabyUanhCgkZt/view]).
+- 📄 [Know about my experiences (Resume)](https://drive.google.com/file/d/1ZJAUSUVh9cH5ELhZiswsabyUanhCgkZt/view)
 - ⚡ Fun fact **I Do What Excites**
 
 <h3 align="left">Connect with me:</h3>
